@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Aura
+- 👀 I’m interested in @bitclout
