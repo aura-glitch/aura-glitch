@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Aura
-- 👀 I’m interested in making the world a better place
+- 👀 I’m interested in making the world and metaverses a better place
